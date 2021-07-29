@@ -15,6 +15,11 @@
 
 - [Sergey Borisov](https://borisov.photographer.ru/?item=1507)
 
+## Portrait
+
+- [Vasiliy Kudryavtsev](https://www.vasiliykudryavtsev.com/#/210588/)
+- [Vasiliy Kudryavtsev Instagram](https://www.instagram.com/bastard242/)
+
 ## Documentary
 
 - [August Sander](https://ocula.com/artists/august-sander/artworks/medium/all/order/recent/1/)
